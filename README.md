@@ -1,7 +1,7 @@
 ### Live long and prosper 🖖
 
 
-- 🔭 I’m currently working on becoming a Software Engineer from over a decade in Ad Ops.
+- 🔭 I’m currently working on becoming a Software Engineer and transitioning from over a decade in Ad Ops.
 - 🌱 I’m currently learning HTML, CSS and JS
 - 💬 Ask me about achieving the perfect natural hair curls 
 - ⚡ Fun fact: I lift things up and put them down 🏋🏽‍♀️.  Current squat PR is 155lb. Working on bench and deadlifts next.
