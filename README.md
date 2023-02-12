@@ -6,6 +6,7 @@
 - 💬 Ask me about achieving the perfect natural hair curls 
 - ⚡ Fun fact: I lift things up and put them down 🏋🏽‍♀️.  Current squat PR is 155lb. Working on bench and deadlifts next.
 
+<figure><embed src="https://wakatime.com/share/@5a7a870e-1fca-4044-b729-991baa5641ba/e32ba907-b1f0-468a-a28a-4ed7d39028a0.svg"></embed></figure>
 <!--
 **sren20/sren20** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
